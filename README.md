@@ -17,7 +17,7 @@ Hi, I'm Siti Nurkamilah, a third year student pursuing a degree in bioinformatic
 
 ## 🌐 Connect with Me
 
-- [LinkedIn]www.linkedin.com/in/siti-nurkamilah-saiful-bahari-7925a7228
+- [LinkedIn]www.linkedin.com/in/siti-nurkamilah-saiful-bahari
 - [Email]sitinurkamilah@gradute.utm.my
 
 Feel free to reach out—I'd love to connect!
